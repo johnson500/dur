@@ -1,0 +1,2 @@
+# dur
+no think
